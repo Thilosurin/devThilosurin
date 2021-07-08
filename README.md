@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @devThilosurin
+- 👋 Hi, I’m Borboom Thilosurin
 - 👀 I’m interested in Girl
 - 🌱 I’m currently learning Code
 - 💞️ I’m looking to collaborate on Someone Who Knows The Force
